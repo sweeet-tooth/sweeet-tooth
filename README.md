@@ -1,5 +1,3 @@
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=sweeet-tooth&color=ff322a&label=♡)
+![](https://komarev.com/ghpvc/?username=sweeet-tooth&color=ff322a&label=♡)
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ (..◜ᴗ◝..)
-
-<img width="736" height="561" alt="1000018922" src="https://github.com/user-attachments/assets/f6d2820d-29bb-4851-adf8-3c03665bb5a7" />
+<img width="800" height="384" alt="Untitled1408_20260522160832" src="https://github.com/user-attachments/assets/022f52d4-012d-40ec-a42c-2b882ce1d506" />
